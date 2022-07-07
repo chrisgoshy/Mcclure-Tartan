@@ -1,2 +1,2 @@
 # Mcclure-Tartan
-McClure Tartan Clan comes from the ancient Dalriadan clans of Scotland's west coast and Hebrides islands.
+<a href="https://scottishkiltshop.com/products/mcclure-tartan">McClure Tartan</a> Clan comes from the ancient Dalriadan clans of Scotland's west coast and Hebrides islands.
